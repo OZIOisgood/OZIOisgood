@@ -1,4 +1,4 @@
-![Black_Large_Lobarev_logo](https://user-images.githubusercontent.com/34250546/143419065-e7a1785e-29af-4eea-8005-f768af46733b.png)
+![image](https://user-images.githubusercontent.com/34250546/143419326-18a89290-fb0d-4d05-8c22-070e0cf823e6.png)
 
 ### Hi everyone 👋
 
