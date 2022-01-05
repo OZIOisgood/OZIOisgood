@@ -1,7 +1,7 @@
 
 ### Hi everyone 🤍
 
-- 🔭 I’m currently working on INSTAtus
+- 🔭 I’m currently working on studen.
 - 🌱 I’m currently learning CS in KPI IASA MMSA
 - 📫 How to reach me: pavellobarev@yahoo.com
 
